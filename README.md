@@ -1,6 +1,6 @@
 # 百变小樱机场官网地址
 
-最新地址：[bbxy.buzz](https://bbxy.xn--cesw6hd3s99f.com/auth/register?code=6AJa)
+最新地址：[bbxy.buzz](https://bbxy.xn--cesw6hd3s99f.com/auth/register?code=slOZ)
 
 ## 百变小樱机场
 
